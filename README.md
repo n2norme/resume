@@ -1,0 +1,1 @@
+Checkout my online resume and portfolio at this URL : https://www.nicolasdenorme.fr/
